@@ -1,2 +1,1 @@
-They Gonna Say Dwassi
-Dwassi kungu
+I DID
